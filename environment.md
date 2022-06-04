@@ -9,3 +9,7 @@
 Konferencja Sztokholmska w 1972 roku doprowadziła do ustanowienia programu ONZ dedykowanego środowisku naturalnemu człowieka - Program Środowiskowy Organizacji Narodów Zjednoczonych (UN Environment). Związki między prawami człowieka, zdrowiem oraz ochroną środowiska zostały podniesione już podczas pierwszej międzynarodowej konferencji poświęconej środowisku niezbędnemu do życia ludziom, która odbyła się w Sztokholmie w 1972 roku. Podczas finałowej sesji w Sztokholmie uczestnicy ogłosili, że:
 
 Człowiek jest zarówno elementem przyrody, jak i siłą sprawczą kształtującą otoczenie, które go utrzymuje przy życiu i inspiruje go do intelektualnego, moralnego, społecznego i duchowego rozwoju. (...) Oba aspekty środowiska człowieka: naturalne i stworzone przez człowieka, mają zasadnicze znaczenie dla jego dobrego samopoczucia i korzystania z podstawowego prawa człowieka – prawa do życia jako takiego.
+
+## Celebrowanie Światowego Dnia Środowiska
+
+Światowy Dzień Środowiska jest więc świętem UN Environment celebrowanym corocznie na pamiątkę ustanowienia Programu Narodów Zjednoczonych do spraw Środowiska i po raz pierwszy obchodzony był na całym świecie w roku 1974 pod globalnym hasłem "Only One Earth" (Ziemia jest tylko jedna).
